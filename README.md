@@ -1,5 +1,5 @@
 # :dizzy: About Me:
-chepa moi mgl
+*Rien a dire sauf le fait que jsois un crack*
 
 
 ## :globe_with_meridians: Socials:
