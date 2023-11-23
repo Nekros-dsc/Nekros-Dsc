@@ -1,5 +1,5 @@
 # :dizzy: About Me:
-*Rien a dire sauf le fait que jsois un crack*
+*Rien a dire sauf le fait que j'sois un crack*
 
 
 ## :globe_with_meridians: Socials:
